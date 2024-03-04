@@ -1,0 +1,2 @@
+# CryptoGold
+Crypto is future
